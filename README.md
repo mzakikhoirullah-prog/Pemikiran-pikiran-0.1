@@ -1,0 +1,1 @@
+# Pemikiran-pikiran-0.1
